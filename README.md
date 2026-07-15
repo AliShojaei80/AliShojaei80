@@ -1,9 +1,9 @@
 # 💫 About Me:
-I'm intersted in to learn and make money😁😁.
+I'm intersted in to learn and make my own game😁😁.
 
-android developing so cool.
+game univers so cool.
 
-i need learn more to make good life😉😉.
+i need learn more to make my dreams😉😉.
 
 sooooooo i must lean moreeeeeeee.
 
