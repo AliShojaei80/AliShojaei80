@@ -5,7 +5,7 @@ game univers so cool.
 
 i need learn more to make my dreams😉😉.
 
-sooooooo i must lean moreeeeeeee.
+sooooooo i must learn moreeeeeeee.
 
 🥸     🖥️     🤓          
 
